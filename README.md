@@ -14,7 +14,7 @@
 
 
 ## Education
-- B.A., Business Administration -  Finance | Los Angeles Pacific University (_October 2022_)				
+- B.A., Business Admin - Finance | Los Angeles Pacific University (_October 2022_)				
 
 ## Projects
 
